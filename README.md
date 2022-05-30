@@ -1,2 +1,2 @@
 # profile-ghazi-hamada
-ghazi-hamada.ga
+https://ghazi-hamada.ga/
